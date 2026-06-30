@@ -6,7 +6,7 @@
 
 # Main Theme
 
-Standing at the edge of the land, Moses tells Israel something unsettling: even after everything they have seen, the LORD has not yet given them a heart to understand. They will fail, break the covenant, and be scattered. Yet that is not where the story ends. Moses looks past their failure to a day when God Himself will circumcise their hearts so they can finally love Him with everything they are. On that promise of grace he builds the great appeal of the whole book: choose life. The choice is real and urgent, but the power to keep it is God's gift. Here, near the close of Deuteronomy, law and grace meet, pointing ahead to the new covenant where God writes His word on the heart.
+Standing at the edge of the land, Moses tells Israel something unsettling: even after everything they have seen, the LORD has not yet given them a heart to understand. They will fail, break the covenant, and be scattered. Yet that is not where the story ends. Moses looks past their failure to a day when God Himself will circumcise their hearts so they can finally love Him with everything they are. 
 
 # Introduction
 
@@ -39,13 +39,13 @@ As Israel stands at the border, Moses presses two truths:
 
 4. Back in chapter 10 Moses commanded Israel to "circumcise the foreskin of your heart" (10:16), but here the wording changes: "the LORD your God will circumcise your heart" (30:6). What is different between the command and the promise, and who is doing the work now? Why is this the only real answer to the heart problem Moses named back in 29:4? (See also Jeremiah 31:33; Ezekiel 36:26–27.)
 
-5. How should the promise that God will "gather you again from all the peoples" (vv. 3–5) change the way Israel hears the curses of chapter 28? Where else in the Bible's story do you see this same pattern of exile followed by God bringing His people home?
+5. How should the promise that God will "gather you again from all the peoples" (vv. 3–5) change the way Israel hears the curses of chapter 28? 
 
 **Read Deuteronomy 30:11–20**
 
 6. How can Moses call the word near and doable (vv. 11–14) when he has been so honest about Israel's hard heart (29:4)? How does the promise of 30:6 make sense of this? (Paul later applies these very words to the gospel in Romans 10:6–8.)
 
-7. Why does Moses reduce all the laws of the previous chapters to two roads and a single decision: "life and good, death and evil" (v. 15)? What is he trying to make Israel feel as they stand on the border?
+7. Why does Moses reduce all the laws of the previous chapters to two roads and a single decision: "life and good, death and evil" (v. 15)? What is he trying to make Israel think and feel as they stand on the border?
 
 8. Choosing life turns out to be choosing a Person, not just a set of rules (vv. 19–20). How does defining life this way change what obedience is really about? Why does Moses say God "is your life" rather than simply that God gives life?
 

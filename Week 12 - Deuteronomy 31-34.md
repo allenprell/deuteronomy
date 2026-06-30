@@ -6,7 +6,7 @@
 
 # Main Theme
 
-Moses is about to die, and the obvious question hanging over these final chapters is simple: what happens to Israel when the man who has led them and spoken for God is gone? Moses answers by securing the future not on himself but on God's word, written down, taught to children, sung into their memory, and set on the heart. The book ends with Moses outside the land he longed to enter, buried by God in an unknown grave, and with a quiet promise still waiting to be kept: that one day a prophet greater than Moses will come, and a people will finally have hearts to obey. The whole story leans forward into the rest of Scripture.
+Moses is about to die, and the question hanging over these final chapters is not hard to miss. What happens to Israel when the man who has led them and spoken for God is gone? Moses answers by putting the future not on himself but on God's word. The book ends with Moses outside the land he longed to enter, buried by God in an unknown grave, while a quiet promise still waits to be kept. One day a prophet greater than Moses will come. One day a people will finally have hearts to obey. The whole story looks forward into the rest of Scripture.
 
 # Introduction
 
@@ -30,37 +30,32 @@ As Israel stands at the border without Moses, the book presses two truths:
 **Read Deuteronomy 31:9–13**
 
 1. Why does it matter that God's instruction gets written down (vv. 9–11) rather than left to Moses' memory and voice?
-
 2. What does the public reading for everyone, men, women, children, and even the foreigner living among them, reveal about how God intends faith to survive past the current generation (vv. 12–13)?
 
 **Read Deuteronomy 32:44–47**
 
 3. Why would Moses answer the threat of future unfaithfulness (32:1–43) with a command to take God's words to heart (v. 46)?
-
 4. In what sense is God's word Israel's "life" (v. 47)? How does that one phrase capture the argument Moses has been making since the start of the book?
 
 **Read Deuteronomy 34:1–12**
 
 5. Why would God keep Moses' grave hidden (vv. 5–7)? What might Israel have been prone to do with it otherwise?
-
 6. How does ending the book by saying no prophet has since arisen like Moses (vv. 10–12) leave Israel looking ahead rather than behind, given the promise of "a prophet like me" in 18:15–18?
 
 # Bringing the Passages Together
 
-7. Moses is about to die, but every one of these passages is occupied with words meant to outlast him: written down, sung, set on the heart, read aloud to children not yet born. How does this answer the crisis hanging over the whole scene: what becomes of Israel once the man who spoke for God is gone?
+7. Moses is about to die, but every one of these passages is occupied with words meant to outlast him: written down, sung, set on the heart, read aloud to children not yet born. How does this answer the crisis hanging over the whole scene of what becomes of Israel once the man who spoke for God is gone?
 
 # Looking Back on Deuteronomy
 
 8. As the book closes, Moses is dead, the people have been warned they will rebel (31:16–18), and the new heart God spoke of back in 30:6 still hasn't come. After everything Israel has been taught over these chapters, what does the ending suggest they still lack?
-
 9. Deuteronomy ends still waiting for the promised prophet, for the circumcised heart of 30:6, and for a people who will finally keep the covenant. How does the New Testament present Jesus as the answer to these unfinished threads? (Acts 3:22–23; Hebrews 3:1–6)
 
 # Application
 
-10. Israel's faith was meant to endure by God's word being read aloud, taught to children, and set on the heart. Honestly, how does Scripture function in your home and your week, central and life-giving, or one voice among many? What would change if you took 32:47 at face value?
-
+10. Israel's faith was meant to endure by God's word being read aloud, taught to children, and set on the heart. How does Scripture function in your home and your week? Central and life-giving, or one voice among many? What would change if you lived like 32:47 is true?
 11. Over these twelve weeks Moses has pressed Israel again and again to love God with the whole heart and not forget Him. As this generation prepares to enter the land without Moses, what is the one thing from Deuteronomy you most want to carry with you, and what will actually help you hold onto it?
 
 # Closing
 
-This is where Deuteronomy leaves us: a faithful God, a treasured word, a leader laid to rest, and a people still waiting for the prophet and the new heart that would finally make obedience possible. Everything the book longs for finds its yes in Christ. The story Moses could only point toward is the one we now live inside.
+Deuteronomy describes a faithful God, a treasured word, a leader laid to rest, and a people still waiting for the prophet and the new heart that would finally make obedience possible. Everything the book longs for finds its fulfillment in Christ. The story Moses could only point toward is the one in which we now live.

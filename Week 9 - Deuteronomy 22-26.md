@@ -10,7 +10,7 @@ The God who rescued Israel from slavery now reaches into the most ordinary corne
 
 # Introduction
 
-In chapters 19–21 Moses applied God's rule to the protection of life, the courts, the battlefield, and the handling of guilt. Chapters 22–26 finish the long section of detailed statutes, and they bring it to a close on purpose. Chapter 26 is the climax of the whole law code: once Moses has spelled out what life with God looks like, he ends not with a final rule but with an act of worship and a confession of faith.
+In chapters 19–21 Moses applied God's rule to the protection of life, the courts, the battlefield, and the handling of guilt. Chapters 22–26 finish the long section of detailed statutes. Once Moses has spelled out what life with God looks like, he ends with an act of worship and a confession of faith.
 
 These chapters cover a wide stretch of ordinary life, lost property, marriage, sexual purity, vows, divorce, and commerce. Underneath the variety is a single concern: a redeemed people should look different from the nations in everything, not just in their temple. This week's three passages each take up one piece of that ordinary life:
 
@@ -31,7 +31,7 @@ As Israel stands at the border, Moses presses two truths:
 
 1. Moses keeps returning to the same three people in Israel with no land of their own and no family to defend them in court: the sojourner, the fatherless, and the widow (vv. 17, 19–21). Twice he gives the same reason for treating them well: "you shall remember that you were a slave in Egypt and the LORD redeemed you" (vv. 18, 22). Why does Moses ground their kindness in their own rescue rather than simply in pity or fairness?
 2. Verse 17 forbids taking "a widow's garment in pledge" by demanding the cloak she sleeps in as security for a loan. The deal would be perfectly legal, yet God bans it outright. Why would God draw a line not only at open cruelty but at squeezing the vulnerable through means that are technically lawful?
-3. The gleaning laws don't tell the landowner to gather food and hand it out; they tell him to leave the forgotten sheaf, the overlooked olives, and the last of the grapes in the field for the poor to come and gather themselves (vv. 19–21). Why might God set up provision for the needy this way rather than as a simple handout? (You may think of how this same law later shapes the story of Ruth.)
+3. The gleaning laws don't tell the landowner to gather food and hand it out; they tell him to leave the forgotten sheaf, the overlooked olives, and the last of the grapes in the field for the poor to come and gather themselves (vv. 19–21). Why might God set up provision for the needy this way rather than as a simple handout? 
 
 **Read Deuteronomy 25:13–16**
 
@@ -44,9 +44,13 @@ As Israel stands at the border, Moses presses two truths:
 7. Notice what the worshiper never says. He doesn't claim "I cleared this ground" or "I earned this crop." He says God "gave us this land" and then brings "the first of the fruit of the ground, which you, O LORD, have given me" (vv. 9–10). How does confessing that everything was a gift change the meaning of handing back the first and best of the harvest?
 8. The chapter ends not with solemn duty but with a command to "rejoice in all the good" the LORD has given, and to bring "the Levite and the sojourner who is among you" into that celebration (v. 11). The sojourner, the same vulnerable outsider from chapter 24, is now seated at the feast. What does it say about Israel's worship that the outsider is welcomed into the joy rather than left at the edges of it?
 
+
+
 # Bringing the Passages Together
 
 9. The confession in chapter 26 makes Israel remember that they started as a "wandering Aramean" and as slaves with nothing, before God gave them a home (vv. 5–9). The laws in chapter 24 turn around and tell that same now-settled people to protect the landless sojourner, fatherless, and widow. How is remembering "we were once the powerless ones" meant to shape the way Israel uses the security and plenty God has given them in their fields, in their business, and in their worship?
+
+
 
 # Application
 

@@ -40,13 +40,13 @@ As Israel stands at the border, Moses presses two truths:
 
 **Read Deuteronomy 28:1–14**
 
-3. The blessings God promises, rain in its season, crops, fruitful wombs and herds, full barns (vv. 4–5, 11–12), are precisely the things the Canaanites credited to Baal and the other fertility gods. Why might God promise to be the giver of those specific things, on what everyone in Canaan treated as Baal's home turf? What loyalty test does that set up for Israel once their lives depend on the next harvest, and where do you see that struggle play out later in their story?
+3. The blessings listed here, rain in season, crops, full barns (vv. 4–5, 11–12), are the very things Canaanite religion credited to Baal. Once Israel's survival in the land depends on the next harvest, what loyalty test does that set up? Where do you see that struggle play out later in their story?
 4. God promises more than full barns: He will make Israel "a people holy to himself," so that "all the peoples of the earth shall see that you are called by the name of the LORD" (vv. 9–10). How does this connect Israel's blessing back to God's promise that through Abraham's offspring all nations would be blessed? Why is Israel's prosperity meant to be *seen* by the surrounding nations rather than simply enjoyed?
 
 **Read Deuteronomy 28:58–68**
 
 5. Moses hangs this whole final section not on breaking specific rules but on whether Israel will "fear this glorious and awesome name, the LORD your God" (v. 58). Why does he locate the root of both obedience and disobedience in how Israel regards God Himself, rather than in the individual commands?
-6. Verse 63 is hard to read: just as the LORD "took delight in doing you good," so He "will take delight in bringing ruin upon you." How can the same God delight in both? 
+6. Verse 63 is a difficult. Just as the LORD "took delight in doing you good," so He "will take delight in bringing ruin upon you." How can the same God delight in both? 
 7. The curses build to a final picture that reverses Israel's entire story: a people once "as numerous as the stars of heaven" left few (v. 62), scattered among the nations (v. 64), and at last carried "back in ships to Egypt" to be sold as slaves with no one even willing to buy them (v. 68). Why does Moses describe the worst possible ending as a return to Egypt?
 
 # Bringing the Passages Together
