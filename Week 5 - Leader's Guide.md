@@ -14,8 +14,8 @@
 
 Pick one to open. Keep it short, the real work is in the text.
 
-- Think of a time you received credit for something you didn't really earn. Was it easy to accept, or did part of you want to set the record straight?
-- When have you felt like an outsider somewhere, new town, new job, new group? What did someone do that made you feel welcomed?
+- What book besides the Bible has most impacted you?
+- What's the first thing you'd buy if you won the lottery today?
 
 # Understanding the Text & the Narrative
 

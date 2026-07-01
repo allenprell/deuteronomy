@@ -14,8 +14,8 @@
 
 Pick one to open. Keep it short, the real work is in the text.
 
-- Think of a time someone helped you when you had no way to pay them back. How did being on the receiving end of that change you?
-- Is there some small, unseen habit, good or bad, that says more about who you are than the things people actually notice? Why do the hidden things matter so much?
+- You are granted the opportunity to send a letter to your past self or receive a letter from your future self. Which do you prefer?
+- If you won the lottery but didn’t tell anyone, how would your friends and family know?
 
 # Understanding the Text & the Narrative
 

@@ -14,8 +14,8 @@
 
 Pick one to open. Keep it short, the real work is in the text.
 
-- What's something you own a photo of that the photo could never really capture? A place, a person, a moment. Why does the image always fall short?
-- Who taught you something important by their life rather than by lecturing you? What stuck with you?
+- If you had to teach one subject. What are you teaching?
+- You suddenly are gifted with any skill of your choice. What is that skill?
 
 # Understanding the Text & the Narrative
 

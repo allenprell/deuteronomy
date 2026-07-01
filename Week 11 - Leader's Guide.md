@@ -14,8 +14,8 @@
 
 Pick one to open. Keep it short, the real work is in the text.
 
-- Have you ever tried to change something about yourself by sheer willpower and found it just didn't stick? What was missing?
-- When you've drifted away from something you really cared about, was it usually one big decision or a slow fade you barely noticed?
+- Name one cool feature you would add to your dream house.
+- Knowing what you know now, what advice would you give your 18-year-old self?
 
 # Understanding the Text & the Narrative
 

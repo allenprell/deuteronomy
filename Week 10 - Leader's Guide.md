@@ -14,8 +14,8 @@
 
 Pick one to open. Keep it short, the real work is in the text.
 
-- Growing up, were the consequences of your choices spelled out clearly, or left vague and unspoken? Which approach shaped you more?
-- Think of a time things were going so well that you quietly stopped paying attention to something important. What happened next?
+- If you could turn any activity into an Olympic sport, what would you win a gold medal in?
+- If you had to participate in an actual Olympic sport, which would you choose?
 
 # Understanding the Text & the Narrative
 

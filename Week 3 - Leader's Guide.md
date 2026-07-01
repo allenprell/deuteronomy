@@ -14,8 +14,8 @@
 
 Pick one to open. Keep it short, the real work is in the text.
 
-- Think of a rule you grew up with that made no sense until you understood the reason behind it. What changed once you knew why?
-- What's a habit you do almost without thinking, morning or evening, that quietly shapes your whole day?
+- What is something that is popular that you can’t get into? OR What's a current trend you just don't get?
+- What is your favorite item you’ve bought this year?
 
 # Understanding the Text & the Narrative
 

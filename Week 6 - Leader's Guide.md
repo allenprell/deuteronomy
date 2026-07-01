@@ -14,8 +14,8 @@
 
 Pick one to open. Keep it short, the real work is in the text.
 
-- Think of a family or group you've belonged to that had its own clear way of doing things. How did being part of it change your habits, even small ones?
-- When you've tried to worship or pray "your own way," did it draw you closer to God or mostly leave you doing what felt comfortable? Why?
+- If someone gave you $20 and you had to spend it immediately, what would you buy?
+- What’s the best or most memorable vacation you’ve ever been on?
 
 # Understanding the Text & the Narrative
 

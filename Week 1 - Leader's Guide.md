@@ -14,7 +14,7 @@
 
 Pick one to open. Keep it short, the real work is in the text.
 
-- Think of a time someone reminded you of something you already knew but had forgotten in the moment. How did that reminder change what you did next?
+- You are trying to plan a really fun day of many activities for very little money. What things will you do?
 - When you're facing something hard, are you more likely to focus on the size of the problem or on the resources you have to meet it? Why do you think that is?
 
 # Understanding the Text & the Narrative

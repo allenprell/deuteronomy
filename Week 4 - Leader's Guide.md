@@ -15,7 +15,7 @@
 Pick one to open. Keep it short, the real work is in the text.
 
 - Have you ever been chosen for something, a team, a job, a friendship, and never quite understood why? How did being chosen for no obvious reason make you feel?
-- When was a time things were going well and you let your guard down, only to realize comfort had made you careless? What happened?
+- When people ask you for help, what do they usually need help with?
 
 # Understanding the Text & the Narrative
 

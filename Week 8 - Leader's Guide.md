@@ -14,8 +14,8 @@
 
 Pick one to open. Keep it short, the real work is in the text.
 
-- When have you seen someone act out of fear and later regret it? What might have steadied them in the moment?
-- Think of a time you were falsely accused of something, even something small. What did it feel like to need someone to weigh the truth carefully?
+- After people and pets, what’s the first thing you’d rescue if (God forbid!) your home was on fire?
+- You have to eliminate one food from existence. What food is it that you ban?
 
 # Understanding the Text & the Narrative
 

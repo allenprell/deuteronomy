@@ -14,8 +14,8 @@
 
 Pick one to open. Keep it short, the real work is in the text.
 
-- Who first passed faith or strong values on to you, and what did they do that made it actually stick?
-- Think of something important that someone made sure to write down so it wouldn't be lost. Why did putting it in writing matter?
+- Someone in this room is a secret agent. Who is it?  Why?
+- What fictional world or place would you like to visit?
 
 # Understanding the Text & the Narrative
 

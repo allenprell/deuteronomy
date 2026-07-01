@@ -14,8 +14,8 @@
 
 Pick one to open. Keep it short, the real work is in the text.
 
-- When you've received unexpected generosity, did it make you more or less likely to be generous yourself? Why do you think that is?
-- Think of a leader you've respected. Did their authority come from how much power they held, or from something else? What was it?
+- Do you think you were born in the wrong decade? When would you want to be born instead?
+- If you had to delete all but 3 apps from your smartphone, which ones would you keep?
 
 # Understanding the Text & the Narrative
 
